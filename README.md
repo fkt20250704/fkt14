@@ -15,4 +15,4 @@
 
 通过合理布局关键词“日本AV免费”、“免费观看日本AV”等，提升网站在搜索引擎的排名。优质内容结合良好用户体验，使网站流量和排名稳步上升，帮助更多用户轻松找到优质免费资源。我们致力于打造安全、高清、无广告的免费观看平台，满足用户需求，让你随时随地享受高品质的日本AV内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt14 ）</span>
